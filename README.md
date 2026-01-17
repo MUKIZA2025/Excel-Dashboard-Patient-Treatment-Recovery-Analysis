@@ -244,9 +244,13 @@ Volunteer Course Instructor – EduConnect Rwanda
 
 Rwanda
 
+## 🔗 Connect with Me
+
+[Ezra Habumukiza on LinkedIn](https://www.linkedin.com/in/mukizaezra)
+
 mukizaezraa@gmail.com
 
-[Connect with me on LinkedIn](www.linkedin.com/in/mukizaezra)
+
 
 
 
