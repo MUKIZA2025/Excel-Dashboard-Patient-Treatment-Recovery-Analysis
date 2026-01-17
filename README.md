@@ -248,7 +248,7 @@ Rwanda
 
 [Ezra Habumukiza on LinkedIn](https://www.linkedin.com/in/mukizaezra)
 
-mukizaezraa@gmail.com
+mukizaezraa@gmail.com | (+250) 780510913
 
 
 
