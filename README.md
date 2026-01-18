@@ -2,7 +2,7 @@
 
 ## 🖼️ Dashboard Preview
 
-![Patient Treatment & Recovery Excel Dashboard](Dashboard ScreenShoot.pgn)
+![Patient Treatment & Recovery Excel Dashboard](Dashboard_ScreenShoot.png)
 
 [Check out for Project Video Demo](https://www.linkedin.com/feed/update/urn:li:activity:7418577162984923136/)
 
